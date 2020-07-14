@@ -1,1 +1,1 @@
-# yusikstar.github.io
+# yusikstar.github.io/yusik.html
